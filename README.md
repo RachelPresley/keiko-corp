@@ -1,2 +1,2 @@
 # keiko-corp
-The greatest company ever created
+The greatest startup ever created
